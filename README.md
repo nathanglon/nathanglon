@@ -1,6 +1,6 @@
 ### Interests
-- Sudoku, coding challenges, math proofs
-- Snowboarding, Pickleball, Soccer
+- Sudoku, Coding, Math Proofs, Crossword Puzzles, 
+- Snowboarding, Soccer, Motorcycling, Motorsports
 
 ### Get in Touch
 - [LinkedIn](https://www.linkedin.com/in/nathanglon)
